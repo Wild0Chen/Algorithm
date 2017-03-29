@@ -1,3 +1,0 @@
-sssssssd
-eddd
-ddd
